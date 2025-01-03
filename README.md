@@ -6,7 +6,7 @@ Envoyez un email à squidgame41@outlook.fr avec les informations suivantes :
 - Votre nom complet
 - Votre prénom
 - Votre date de naissance
-- Une photo claire de votre carte Squid Game avec marqué OUI dessus.
+- Prenez une photo claire de votre carte Squid Game la ou il y a le QR code et marquer OUI au crayon bleu.
 - L’objet que vous souhaitez apporter au jeu (attention, cet objet devra être validé par notre équipe).
 
 Notre équipe examinera votre candidature et vous contactera pour la suite. 
